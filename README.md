@@ -1,3 +1,7 @@
+https://rounds.gg/<br>
+https://github.com/larihama/<br>
+https://www.linkedin.com/in/larihama/<br>
+<br>
 you know, you know where you are with<br>
 you know where you are with<br>
 floor collapses, floating<br>
