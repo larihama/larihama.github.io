@@ -1,7 +1,6 @@
 [GitHub](https://github.com/larihama/) × [LinkedIn](https://www.linkedin.com/in/larihama/)<br>
 <br>
-Social Media Intern for [ROUNDS](https://rounds.gg/)<br>
-Main Writer for [rounds.gg](https://rounds.gg/)<br>
+Social Media Intern for [ROUNDS](https://rounds.gg/) × Main Writer for [rounds.gg](https://rounds.gg/)<br>
 Student in Computer Software Engineering, Bachelor of Engineering - BE<br>
 <br>
 2025 Fortnite TwitchCon Rotterdam Philips OneBlade Body Royale LAN Finalist<br>
