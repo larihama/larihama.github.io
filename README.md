@@ -1,6 +1,4 @@
-[ROUNDS](https://rounds.gg/)<br>
-[GitHub](https://github.com/larihama/)<br>
-[LinkedIn](https://www.linkedin.com/in/larihama/)<br>
+[ROUNDS](https://rounds.gg/) × [GitHub](https://github.com/larihama/) × [LinkedIn](https://www.linkedin.com/in/larihama/)<br>
 <br>
 you know, you know where you are with<br>
 you know where you are with<br>
