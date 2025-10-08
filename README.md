@@ -1,5 +1,3 @@
-# larihama.github.io
-
 you know, you know where you are with<br>
 you know where you are with<br>
 floor collapses, floating<br>
